@@ -2,7 +2,7 @@
 Sehr geehrte Damen und Herren,
 
 Sie haben meine private E-Mail benutzt, die nur für Freunde bestimmt ist.
-Bitte nutzen sie nur meine Geschäftsemail nikolay@georgiev.io und löschen Sie meine private E-Mail von Ihrem System.
+Bitte nutzen Sie nur meine Geschäftsemail nikolay@georgiev.io und löschen Sie meine private E-Mail von Ihrem System.
 
 Vielen Dank für das Verständnis!
 
